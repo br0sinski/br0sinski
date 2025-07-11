@@ -1,6 +1,6 @@
 <br clear="both">
 
-<h1 align="center">Thanks for checking out my profile! Follow me, I usually follow back =)!</h1>
+<h1 align="center"> 🍃 Thanks for checking out my profile! Follow me, I usually follow back =)! ⭐ </h1>
 
 ###
 
