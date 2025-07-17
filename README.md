@@ -1,6 +1,6 @@
 <br clear="both">
 
-<h1 align="center"> 🍃 Thanks for checking out my profile! I hope you can find something useful in my Repos =)! ⭐ </h1>
+<h1 align="center"> 🍃 Thanks for checking out my profile! I hope you can find something useful in my Repos =) ⭐ </h1>
 
 ###
 
